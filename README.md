@@ -74,11 +74,12 @@ Skilled web developer with hands-on experience designing and developing projects
 ## 📫 Contact Me
 
 - 📧 Email: [ ammadudin23@gmail.com ]
-- 📱 Phone: `0347-5425900`  
+- 📱 Phone: `0347-5425900`
 - 💼 LinkedIn: [muhammad-ammad-ud-din-khan](www.linkedin.com/in/muhammad-ammad-du-din-khan-331012307)  
-
 
 ---
 
-### “Code is like humor. When you have to explain it, it’s bad.” – *Cory House*
+
+
+
 

@@ -75,7 +75,7 @@ Skilled web developer with hands-on experience designing and developing projects
 
 - 📧 Email: [ ammadudin23@gmail.com ]
 - 📱 Phone: `0347-5425900`  
-- 💼 LinkedIn: [muhammad-ammad-ud-din-khan](https://www.linkedin.com/in/muhammad-ammad-ud-din-khan-331012307)  
+- 💼 LinkedIn: [muhammad-ammad-ud-din-khan](www.linkedin.com/in/muhammad-ammad-du-din-khan-331012307)  
 
 
 ---
